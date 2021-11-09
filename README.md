@@ -21,4 +21,4 @@
 
 ## Контакты:
 
-Telegram: [@myr_dasha](https://t.me/myr_dasha)
+Telegram: [@dash_kish_mish](https://t.me/dash_kish_mish)

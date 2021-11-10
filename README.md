@@ -22,3 +22,4 @@
 ## Контакты:
 
 Telegram: [@dash_kish_mish](https://t.me/dash_kish_mish)
+E-mail: darya55k2001@yandex.ru
